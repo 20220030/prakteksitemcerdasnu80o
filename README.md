@@ -1,1 +1,0 @@
-# prakteksitemcerdasnu80o
